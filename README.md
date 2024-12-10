@@ -5,8 +5,7 @@ In 2024, KFC continues to be one of the most popular online marketplaces, offeri
 
 **[👉CLICK HERE TO GET NOW FREE](https://service247.xyz/kfc2)**
 
-                                         <img src="images/screenshot.png" alt="Project Screenshot" width="400"/>
-![My Project Screenshot](https://i.pinimg.com/736x/58/9b/ed/589bed9c520630a244cbd002f43c6be7.jpg)
+                                ![My Project Screenshot](https://i.pinimg.com/736x/58/9b/ed/589bed9c520630a244cbd002f43c6be7.jpg)
 
 Sounds too good to be true? Let’s dive deeper into this amazing offer and see how you can start claiming your gift card codes today.
 
